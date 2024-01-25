@@ -1,1 +1,0 @@
-# quickdrop.github.io
